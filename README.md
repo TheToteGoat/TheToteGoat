@@ -1,2 +1,2 @@
 # TheToteGoat
-College student, conntent Creator, and consumer
+College student, content Creator, and consumer
